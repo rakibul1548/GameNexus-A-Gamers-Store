@@ -1,1 +1,1 @@
-# GameNexus-A-Gamers-Store1
+# GameNexus-A-Gamers-Store
